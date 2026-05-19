@@ -246,4 +246,4 @@ If you like this project:
 
 For any queries or collaboration:
 
-📩 your-email@example.com
+📩 your-alaypatel5702@gmail.com
